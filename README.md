@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @THEMUSICGAMER
-- 👀 I’m interested in coading
+- 👀 I’m interested in coding
 - 🌱 I’m currently learning it
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me and ya i got new friends here
